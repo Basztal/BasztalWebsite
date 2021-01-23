@@ -1,1 +1,0 @@
-Pozdro macie :P
